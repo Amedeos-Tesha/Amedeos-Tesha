@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: aamech.t@gmail.com
 - 😄 Pronouns: HE,HIM
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: A group of flamingos is callled a Flamboyance
 -->
